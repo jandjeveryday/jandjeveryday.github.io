@@ -1,1 +1,0 @@
-# jandjeveryday.github.io
